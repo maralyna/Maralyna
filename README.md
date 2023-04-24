@@ -1,4 +1,3 @@
-### Hi there 👋
 
 # 💫 About Me:
 Oiii!!! Eu sou a Maralyna Valerio
